@@ -1,0 +1,1 @@
+# Indivillage-Static-Page
